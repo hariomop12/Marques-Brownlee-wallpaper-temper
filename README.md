@@ -1,4 +1,4 @@
-# Marques-Brownlee-Wallpaper-Tempor
+# Marques-Brownlee-Wallpaper-Temper
 
 📥 **Download all the wallpapers in MKBHD's "Panels" app**
 
