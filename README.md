@@ -1,6 +1,8 @@
 # Marques-Brownlee-Wallpaper-Temper
 
-📥 **Download all the wallpapers in MKBHD's "Panels" app**
+## ⭐ Please give 1 Star to the repo!
+
+📥 **Download all the wallpapers from MKBHD's "Panels" app!**
 
 ## How to Use
 
